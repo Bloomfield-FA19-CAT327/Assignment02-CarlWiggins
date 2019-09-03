@@ -23,7 +23,6 @@
 
 1. Kingdom Hears
 2. Rainbow Six Siege
-3. Spooderman
 
 # Heres a link to some cool stuff
 
